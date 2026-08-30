@@ -4,7 +4,7 @@
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning Wayamba University Sri Lanka
 - 💬 Ask me about ...
-- 📫 Reach me at: `chamodiherath@gmail.com`
+- 📫 Reach me at: `chamodiherath2004@gmail.com`
 
 ---
 
